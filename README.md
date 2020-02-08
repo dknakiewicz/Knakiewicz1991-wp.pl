@@ -1,0 +1,1 @@
+# Knakiewicz1991-wp.pl
